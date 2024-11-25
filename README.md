@@ -26,19 +26,19 @@
 ### 🚀免费Clash订阅链接
 
 ```
-https://MeJ8VR.mcsslk.xyz/c711509da9acdd41540ecbe12020dab6
+https://KafJav.mcsslk.xyz/c1b87f42f42fff5bc896159063ad272c
 ```
 
 ### 🚀免费v2rayN订阅链接
 
 ```
-https://MeJ8VR.mcsslk.xyz/c711509da9acdd41540ecbe12020dab6
+https://KafJav.mcsslk.xyz/c1b87f42f42fff5bc896159063ad272c
 ```
 
 ### 🚀免费iOS小火箭订阅链接
 
 ```
-https://MeJ8VR.mcsslk.xyz/c711509da9acdd41540ecbe12020dab6
+https://KafJav.mcsslk.xyz/c1b87f42f42fff5bc896159063ad272c
 ```
 
 ### 翻墙机场怎么选
