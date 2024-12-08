@@ -26,19 +26,19 @@
 ### 🚀免费Clash订阅链接
 
 ```
-https://34BKua.mcsslk.xyz/97a5406f02d7637caf4601f11aaeae55
+https://6FerJo.mcsslk.xyz/40abb85b8e26d86c18eb6b2767d55cb9
 ```
 
 ### 🚀免费v2rayN订阅链接
 
 ```
-https://34BKua.mcsslk.xyz/97a5406f02d7637caf4601f11aaeae55
+https://6FerJo.mcsslk.xyz/40abb85b8e26d86c18eb6b2767d55cb9
 ```
 
 ### 🚀免费iOS小火箭订阅链接
 
 ```
-https://34BKua.mcsslk.xyz/97a5406f02d7637caf4601f11aaeae55
+https://6FerJo.mcsslk.xyz/40abb85b8e26d86c18eb6b2767d55cb9
 ```
 
 ### 翻墙机场怎么选
