@@ -1,4 +1,4 @@
-### 🚀最后更新时间: 2026-08-08 17:46:15
+### 🚀最后更新时间: 2026-08-08 18:15:42
 
 ![优惠活动](https://tuijianvpn.com/wp-content/uploads/2024/09/截屏2024-09-22-18.52.10.png)
 
@@ -14,19 +14,19 @@
 ### 🚀免费Clash订阅链接
 
 ```
-https://SfYErG.mcsslk.xyz/705f7956778ab006ef41b3e9d21474d4
+https://VYh08r.mcsslk.xyz/f692a5947fbf3e47a5c52df1a9212be6
 ```
 
 ### 🚀免费v2rayN订阅链接
 
 ```
-https://SfYErG.mcsslk.xyz/705f7956778ab006ef41b3e9d21474d4
+https://VYh08r.mcsslk.xyz/f692a5947fbf3e47a5c52df1a9212be6
 ```
 
 ### 🚀免费iOS小火箭订阅链接
 
 ```
-https://SfYErG.mcsslk.xyz/705f7956778ab006ef41b3e9d21474d4
+https://VYh08r.mcsslk.xyz/f692a5947fbf3e47a5c52df1a9212be6
 ```
 
 ### 翻墙机场怎么选
